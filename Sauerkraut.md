@@ -1,0 +1,3 @@
+Tipp: Sauerkraut mit Hackfleisch: 1 Zwiebel, 1/2 Knoblauchzehe, 1 TL ÖI, 250 ml Fleisch- brühe, 300 g Hackfleisch, 2 EL Crème Fraîche, 500 g King's Crown Weinsauerkraut.
+
+Zwiebeln und Knoblauch klein hacken und in Öl anbraten. Das Hackfleisch hinzugeben, mit einer Prise Pfeffer würzen und weiterbraten. Mit Fleischbrühe angießen und King's Crown mildes Weinsauerkraut zugeben. Unter Umrühren ca. 15 Min. weiterdünsten. Crème Fraîche unter- ziehen und mit etwas Schnittlauch servieren
